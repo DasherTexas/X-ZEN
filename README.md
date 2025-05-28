@@ -1,2 +1,2 @@
 # X-ZEN
-um idk
+X-Zen i um i havent thought yet lol sorry
